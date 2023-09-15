@@ -1,0 +1,5 @@
+    This summer I didn't really do anything but i had a two week internship for Teraform one lab. The purpose of the Teraform one lab internship was to create a mycelium mold model that we could use to potientially help the environment. The first day of the one lab internship we ran through the schedule for the next 2 weeks and learned we would have a big final project due in the upcoming week. The second day of the Teraform one lab project we got cardboard boxes and cut them in whatever 3d shape we wanted so we could put the mycelium inside and let it form. I struggled alot with the box cutting because we had to use an X-acto knife, it was harder then I thought.
+
+![Example picture of what I did](/assets/xacto.jpeg)
+
+    After struggling to make my cardbord in the shape of a rectangle i did a good job wetting the mycelium and putting it in a bag tightly so it doesnt grow mold. 
