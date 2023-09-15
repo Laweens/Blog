@@ -1,1 +1,1 @@
-my index page work
+Welcome to the start of Laweens journey in coding. 
