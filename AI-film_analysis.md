@@ -1,0 +1,7 @@
+In the film wall-e Ai systems are depicted to have more emotions than even the humans, Wall-e for example has emotions that's unusual for a robot and through his interactions with the other robots also gives them emotions. Ai also take the main role in the movie giving us a different perspective looking on as humans.
+<hr>
+Wall-e represents resilience and spirit through his actions of constantly fulfilling his duty in a world with no human interaction. When eve comes into the story it's the first time we see wall-e ever interact with something or to him someone thats "alive" and he shows emotion like a human, he gets excited and even falls in love, he also automatically gets the urge to want to teach eve about things she may not know to try and impress her.
+<hr>
+Humans in wall-e portray the consequences of littering, not recycle and being irresponsible, eventually due to their neglect they have to abandon earth and give their dirty work to the robots. When wall-e finally gets on the ship it just shows how reliant human society is on AI, seeing them being handed everything and seeing them unable to stand being carried around by a chair showed the viewers the severity of how fall the human race declined. 
+<hr>
+As wall-e and eve start to have an impact on the human civilization and give them hope with the seedling that sprouted from earth the autopilot and his grounp of robots try to destroy their efforts due to the commands of the president who believed the space ship was truly the only place for humans and the earth was destroyed. 
